@@ -1,4 +1,4 @@
 # Update
 
 
-#Discord Server: https://dsc.gg/encrypted
+Discord Server: https://dsc.gg/encrypted
